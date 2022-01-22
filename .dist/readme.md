@@ -1,0 +1,1 @@
+Leitura para Exercício Lógico
